@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @imagicw
+- 👀 I’m interested in playing drums, guitar, piano.
+- 🌱 I’m currently learning coding
